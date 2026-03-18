@@ -1,0 +1,1 @@
+# mangecp2026.github.io
